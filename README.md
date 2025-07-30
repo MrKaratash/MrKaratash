@@ -15,7 +15,7 @@
 
 ## 📫 Let's Connect!
 - ✉️ [keremkaratas03@gmail.com](mailto:keremkaratas03@gmail.com)
-- 💼 [LinkedIn](https://www.linkedin.com/in/keremkaratas/) *(varsa ekle)*
+- 💼 [LinkedIn](https://www.linkedin.com/in/keremkaratas/) 
 
 ---
 > "Discipline is choosing between what you want now and what you want most."
